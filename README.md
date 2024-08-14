@@ -18,5 +18,5 @@ My favorite summer memory with my friends was going mini golfing in Sherman Oaks
 
 ## FUTURE ASPIRATIONS
 Over the summer a main topic of conversation was college for not only me but many others in my grade. I have been thinking a lot about what colleges I want to apply to, what states I would be comfortable in, and what is reasonable for me. But the main worry for me has been what field I want to go int and what major I will be putting on my college applications. As a kid I always loved the idea of architecture and interior designing, but as college approaches that ideaa becomes less and less exciting. Over the past year the major that has peaked my interest is finance. For me this seems not only like a stable choice but something that I could do very well in. In high school Mr. Cooper has made my love for math grow which is the main reason I am going with a math major. I believe finance will also provide me with many options when the time comes to join the work force and provide me with a hopefully well off future.
-![Alt Text](blob:chrome-untrusted://media-app/a3d67651-6e8b-4942-80ac-5c248fa593a7)
+![Alt Text](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c1/Seal_of_the_University_of_California%2C_San_Diego.svg/640px-Seal_of_the_University_of_California%2C_San_Diego.svg.png)
 
